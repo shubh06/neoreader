@@ -1,0 +1,1 @@
+I'll be trying make NeoReader.com.br open social.
